@@ -1,0 +1,1 @@
+# aquinasresources.com
